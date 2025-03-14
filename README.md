@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+⭐김도경⭐
+
+😃대구과학고둥학교 38기😃
